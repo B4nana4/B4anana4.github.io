@@ -1,1 +1,0 @@
-# Funny3d-models.com
